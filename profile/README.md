@@ -7,5 +7,5 @@ Master PDF Editor is a free PDF document editor that lets you create and modify 
 
 
 
-## [🚀🎉💹 Master PDF Editor For PC](https://tinyurl.com/yxwwa9k8)
-## [🚀🎉💹 Master PDF Editor For Windows](https://tinyurl.com/yxwwa9k8)
+## [🚀🎉💹 Master PDF Editor For PC](https://tinyurl.com/444t9twx)
+## [🚀🎉💹 Master PDF Editor For Windows](https://tinyurl.com/444t9twx)
